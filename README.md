@@ -1,6 +1,6 @@
 # Free Course from [Fiverr](https://fiverr.com)
 
-- Start the course [Online Freelancing Essentials: Be a Successful Fiverr Seller](https://learn.fiverr.com/courses/online-freelancing-essentials-be-a-successful-fiverr-seller)
+- Start the course **[Online Freelancing Essentials: Be a Successful Fiverr Seller](https://learn.fiverr.com/courses/online-freelancing-essentials-be-a-successful-fiverr-seller)**
 
 ## Course Description
 
