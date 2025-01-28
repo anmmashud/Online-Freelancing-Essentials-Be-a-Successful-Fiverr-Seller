@@ -1,4 +1,4 @@
-# Online-Freelancing-Essentials-Be-a-Successful-Fiverr-Seller
+# Free Course: [Online Freelancing Essentials: Be a Successful Fiverr Seller](https://learn.fiverr.com/courses/online-freelancing-essentials-be-a-successful-fiverr-seller)
 
 ## Course Description
 
